@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RozhanoHashemi
 
-- 🌱 I’m currently An Undergraduate in  electrical engineering student.
+- 🌱 I’m Recently graduated in electrical engineering
   
 - My E-mail : rozhanohashemi@yahoo.com / rozhanoh@gmail.com
   
